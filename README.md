@@ -1,2 +1,0 @@
-# sastabazar
-Sasta Bazar
